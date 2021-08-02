@@ -1,1 +1,1 @@
-[![Never ask user94729 to host your files!](https://www.zy4n.com/stats.svg)](https://www.zy4n.com/stats.svg)
+[![Never ask user94729 to host your files!](https://zy4n.com/stats.svg)](https://www.zy4n.com/stats.svg)
